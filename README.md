@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @KaliKacsa
-- 👀 I’m interested in Hacking of course the Ethical one. : 3 
-- 💞️ I’m looking to collaborate on who have this skills and teach me!
+- 👀 I’m interested Programing laguages
 - Please note me if you have tools that you recommanded 
  
 
